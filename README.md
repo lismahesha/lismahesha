@@ -1,6 +1,5 @@
 ### Hi there 👋, Lisma Mahesha Amanda
 #### Data Analyst Enthusiast
-![Data Analyst Enthusiast](https://www.canva.com/design/DAFUpdf03H4/view)
 
 I'm Lisma from Indonesia, I have recently developed a passion for data analytics. As a data analyst enthusiast, I am eager to improve my knowledge of data.
 
